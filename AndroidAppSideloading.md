@@ -1,0 +1,1 @@
+http://www.androidcentral.com/sideload-android-apps-all-you-want-sideload-wonder-machine
